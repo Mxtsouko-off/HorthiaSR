@@ -10,4 +10,8 @@ Download >
 https://mega.nz/folder/RjcQGaLA#55HyUt5oZLHeSRJQIUzXjg
 
 
-https://wallpapercave.com/wp/wp7777376.jpg
+![image](https://github.com/Mxtsouko666/HorthiaSR/assets/99751673/e209575e-3677-45fa-9126-33fd895e98f1)
+
+
+Discord >
+https://discord.gg/GXBqzRnbXg
